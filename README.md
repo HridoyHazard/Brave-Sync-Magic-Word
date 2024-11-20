@@ -1,0 +1,1 @@
+# Brave-Sync-Magic-Word
